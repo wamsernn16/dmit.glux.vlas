@@ -1,0 +1,6 @@
+![cart-icon](https://github.com/wamsernn16/dmit.glux.vlas/assets/159882836/3a2ce8fe-ea0e-4475-a669-dbaa78c6ec71)
+![nerds-illustration 1](https://github.com/wamsernn16/dmit.glux.vlas/assets/159882836/f5a7c281-ac2e-4980-b57d-79337fd2b994)
+![nerds-logo](https://github.com/wamsernn16/dmit.glux.vlas/assets/159882836/0140a32f-9c96-4914-8b33-d51b1cf9ec5e)
+![картинка1](https://github.com/wamsernn16/dmit.glux.vlas/assets/159882836/13d9adfb-d0ae-4e6c-8471-59196ad27479)
+![картинка2](https://github.com/wamsernn16/dmit.glux.vlas/assets/159882836/effd7790-b460-4057-99cf-2b0503ef2f46)
+![картинка3](https://github.com/wamsernn16/dmit.glux.vlas/assets/159882836/ee4a8368-4101-413d-bdd7-721e23d8f06b)
